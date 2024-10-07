@@ -1,1 +1,1 @@
-idk made this for fun hahah
+take this seriously 
